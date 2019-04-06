@@ -2,7 +2,7 @@ Kurnia Ilham
 1806147022
 SMAN 2 Kediri
 
-Irham Ilman Zhafir
+Bu Mirna
 1806191061
 SMAN 35 Jakarta
 
